@@ -6,5 +6,7 @@ There was a man who had a dog, its name was James. James was nearing 3 years old
 
 #### Artists on Instagram That I Like 
 @frustrationsmear, [the linktree](linktr.ee/carrierheaume)
+
 @gregefromenteau_art, [prints](www.artstation.com/greg-f/prints)
+
 @itadaki_yasu, [the linktree](linktr.ee/studiolg)

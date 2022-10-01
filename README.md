@@ -7,9 +7,9 @@ There was a man who had a dog, its name was James. James was nearing 3 years old
 *Moral of the story*: life goes on!
 
 #### 2. Artists on Instagram That I Like 
-@frustrationsmear, [the linktree](linktr.ee/carrierheaume)  
-@gregefromenteau_art, [prints](www.artstation.com/greg-f/prints)  
-@itadaki_yasu, [the linktree](linktr.ee/studiolg)  
-@cherrychewwy, [carrd](chxrrypie.carrd.co)  
+@frustrationsmear, [the linktree](https://linktr.ee/carrierheaume)  
+@gregefromenteau_art, [prints](https://www.artstation.com/greg-f/prints)   
+@itadaki_yasu, [the linktree](https://linktr.ee/studiolg)  
+@cherrychewwy, [carrd](https://chxrrypie.carrd.co)  
 
 <img src="https://user-images.githubusercontent.com/114502973/193397857-1574c43b-d181-4252-b905-f0797f893727.jpg" width="50" height="50">  <img src="https://user-images.githubusercontent.com/114502973/193397852-be861228-72c8-439a-815e-f89a5bb85816.jpg" width="50" height="50">  

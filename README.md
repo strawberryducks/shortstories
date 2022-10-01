@@ -10,5 +10,8 @@ There was a man who had a dog, its name was James. James was nearing 3 years old
 @frustrationsmear, [the linktree](linktr.ee/carrierheaume)  
 @gregefromenteau_art, [prints](www.artstation.com/greg-f/prints)  
 @itadaki_yasu, [the linktree](linktr.ee/studiolg)  
-@cherrychewwy, [carrd](chxrrypie.carrd.co)  
-free icons on her Instagram:![duck](https://user-images.githubusercontent.com/114502973/193397222-83144955-f0bb-486d-b3ac-9ee46964087d.jpg)
+@cherrychewwy, [carrd](chxrrypie.carrd.co)
+
+
+![duck](https://user-images.githubusercontent.com/114502973/193397222-83144955-f0bb-486d-b3ac-9ee46964087d.jpg)![tulip](https://user-images.githubusercontent.com/114502973/193397324-aeb640a2-a1b8-48de-90b3-495feeed83f1.jpg)
+

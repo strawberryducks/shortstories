@@ -13,7 +13,7 @@ There was a man who had a dog, its name was James. James was nearing 3 years old
 @cherrychewwy, [carrd](chxrrypie.carrd.co)
 
 
-![duck](https://user-images.githubusercontent.com/114502973/193397222-83144955-f0bb-486d-b3ac-9ee46964087d.jpg)![tulip](https://user-images.githubusercontent.com/114502973/193397423-567035f6-8aab-430e-8e3c-586da3ba3475.jpg) ![flower](https://user-images.githubusercontent.com/114502973/193397480-c5f4c9f9-53ab-4b7d-a246-b7b14c9b796d.jpg)
+![duck](https://user-images.githubusercontent.com/114502973/193397222-83144955-f0bb-486d-b3ac-9ee46964087d.jpg) ![flower](https://user-images.githubusercontent.com/114502973/193397480-c5f4c9f9-53ab-4b7d-a246-b7b14c9b796d.jpg)
 
 
 

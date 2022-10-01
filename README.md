@@ -14,5 +14,6 @@ There was a man who had a dog, its name was James. James was nearing 3 years old
 @itadaki_yasu, [the linktree](linktr.ee/studiolg)  
 @cherrychewwy, [carrd](chxrrypie.carrd.co)  
 
+<img src="https://user-images.githubusercontent.com/114502973/193397857-1574c43b-d181-4252-b905-f0797f893727.jpg" width="50" height="50">  
 
 ![tuleep](https://user-images.githubusercontent.com/114502973/193397857-1574c43b-d181-4252-b905-f0797f893727.jpg)
